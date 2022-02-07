@@ -1,1 +1,3 @@
 # SzoftverGyak
+asdasdasd
+asdasdasdasd
